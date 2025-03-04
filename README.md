@@ -1,4 +1,12 @@
-# Unlock 20% Savings with ITEHIL Coupon Code "142" – Shop Smart Today!
+# Unlock 20% Savings with ITEHIL Coupon Code "142" – Shop Smart Today
+
+<p align="center">
+  <img src="https://res.cloudinary.com/dod2reyan/image/upload/v1741072545/itehil_hxroak.png" 
+       alt="Image Description" 
+       width="800" 
+       height="500">
+</p>
+
 
 Imagine planning a spring camping trip or prepping for a power outage—reliable gear is essential, but costs can climb fast. That’s where ITEHIL shines, offering eco-friendly outdoor solutions like solar panels, power stations, and water purifiers. Here’s the best part: use the **ITEHIL Coupon Code "142"** to save 20% right now. This guide shows you how to unlock those savings, explore top products, and shop smart via [this link](https://itehil.com/?ref=jxfcauxm). Whether you’re an adventurer or a prepper, the ITEHIL Coupon Code "142" makes premium gear affordable. With March 2025 here, spring is the perfect time to gear up. Let’s dive into how this coupon code can transform your shopping!
 
